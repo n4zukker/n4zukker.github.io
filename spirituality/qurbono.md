@@ -435,13 +435,13 @@ A word of appreciation for the members of the Commission on Liturgy is overdue. 
 
 May the blessing of the Most Holy Trinity, Father, Son and Holy Spirit, the One God, be with us all. Amen.
 
-Bkerke
-on the feast of the Disciples of our Father Saint Maron, 31 July 1992
-&#10013; Boutros Gemayel
-Archbishop of Cyprus for the Maronites
-Chairman, Patriarchal Commission on Liturgy
+Bkerke<br/>
+on the feast of the Disciples of our Father Saint Maron, 31 July 1992<br/>
+&#10013; Boutros Gemayel,
+Archbishop of Cyprus for the Maronites;
+Chairman, Patriarchal Commission on Liturgy.
 
-*English translation by Bishop Stephen Hector Doueihi*
-*Bishop of the Eparchy of Saint Maron of Brooklyn*
+*English translation by &#10013; Bishop Stephen Hector Doueihi*,
+*Bishop of the Eparchy of Saint Maron of Brooklyn*.
 
 *reprinted with permission*
