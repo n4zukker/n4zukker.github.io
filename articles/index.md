@@ -2,7 +2,6 @@
 
 ## Maronite Spirituality
 * [Exerpt from *Being A Maronite Catholic*](spirituality) by Msgr. Ronald Beshara
-* [Origin and Identity](origin_identity)
 * A Commentary on the Holy Mysteries by Chorbishop Seely Beggiani
   * [Holy Mystery of Offering](divliturgy)
   * [The Anaphora](anaphora)
