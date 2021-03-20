@@ -3,7 +3,7 @@
 <h1>
 A Commentary on the Holy Mysteries (continued)<br />
 The Anaphora<br />
-<i>By Chorbishop Seely Beggiani</i>
+By Chorbishop Seely Beggiani
 </h1>
 
 The Eastern Churches give the name Anaphora to the Eucharistic prayer. The term comes from the Greek and means to lift on high or to elevate. Therefore, it has the meaning of offering, which is the principal action that is taking place. As already noted, during the Eucharistic service we seek to unite ourselves with the sacrificial offering of the Body and Blood of Christ, so as to achieve union with God.In the introductory dialogue to the Prayer of Praise and Thanksgiving", the faithful pray: "Let us lift up our thoughts, our minds and our hearts." Thus the spirit of Anaphora should imbue our interior attitudes and dispositions.
