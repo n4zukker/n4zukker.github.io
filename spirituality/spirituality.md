@@ -1,4 +1,4 @@
-#Maronite Spirituality
+# Maronite Spirituality
 The Syriac Maronite Church is an integration of three traditions:
 
 Antioch: A center of commerce and communication in West Syria of Greek and Syriac influence. It gave the Maronite Church its biblical theology and use of the literal sense of scripture.
@@ -9,14 +9,14 @@ Mount Lebanon: A region in the Middle East of Lebanese culture and tradition. It
 
 The Maronites living in the countryside near Antioch resisted extensive Greek influence and retained the Syriac culture and language of Edessa. Thus the theology, spirituality and liturgy developed according to biblical themes rather than philosophical thought.
 
-##Maron (350-410 AD)
+## Maron (350-410 AD)
 Maron, a priest and hermit, known to John Chrysostom, walked the land once traveled by Peter and Paul. On the banks of the Orontes River, Father Maron converted an old pagan temple into a church. He spent his life teaching about the faith and ministering to many people with the gift of healing and counsel. Over 800 monks later followed in his footsteps. These early followers of the lifestyle and way of Maron were known as MARONITES.
 
 Their history reveals great sacrifices of their lives and possessions for their religious convictions and freedom. They defended the Council of Chalcedon (taught Christ is God and man, and Mary is Mother of God). Maronites came to Mount Lebanon and later elected John Maron as their first patriarch in 687. By this, the Maronite Community became established as an organized church and Lebanon became the third geographical center of influence for Maron's family of faith.
 
 From its monastic origins to today the Maronite Community of faith includes several religious orders of monks and sisters whose important ministries to the Church provide continued nourishment, growth and maturity. Maronites are Catholics of many nations and diverse cultures. Presently, the *Mother Church* is in Lebanon and daughter communities exist in ever nation of the world. Often the sons and daughters of Maron are referred to as *Beit Maroun*, (the house of Maron).
 
-##A View of God
+## A View of God
 God is Mystery: The Maronite mind has always been in awe of this mysteriousness of God and presumes a great distance between Creator and creation. However, the distance is bridged by God's self revelation.
 
 *"We are able only to say God is, but to research how he is, the door is closed." Narsai*
@@ -25,7 +25,7 @@ The reason is the inner life of God is a divine mystery beyond limited human kno
 
 Yet, the process leads to mystical union with God -- for the more one loves God, the more one encounters God. The search for God then leads to wonder, communion and prayer. *"When one tries to describe the mystery of God in words, one can only stammer."* Ephrem
 
-##An Approach to Prayer
+## An Approach to Prayer
 Prayer is the process of "being" in the presence of God Who is always present to all creation. To encounter creation and humankind is to meet and embrace God.
 
 The early Syriac writers drew upon the semitic biblical idea of HEART as the center of spiritual life. The Greek writers relied upon a more philosophical idea of HEART as the center of intellectual life.
@@ -36,7 +36,7 @@ Prayer of the heart means light, clarity and inner vision. The heart becomes the
 
 Thus prayer is the state of lovingly remembering God so that the person experiences His presence and communion. It is the gift of inner vision which sees all created things as transparent- God-touched, transformed and divinized.
 
-##A Biblical Spirituality
+## A Biblical Spirituality
 While one is unable to know God himself, he can know God who manifests himself through nature, humanity and scripture. St. Paul Writes: *"Since the creation of the world, invisible realities have become visible, recognized through the things God has made"* (Rom 1:20).
 
 Genesis indicates that the hidden God revealed Himself through His creating word. Since God spoke it into being, creation is a great symbol of the Creator.
@@ -57,14 +57,14 @@ Antioch's school of theology stressed the humanity of Christ. This is best seen 
 
 *"In the beginning, You formed us from the earth in Your image and gave us the joy of paradise. When we transgressed Your command, You did not reject us, but called us back by the law, as a merciful Father. You guided us by the prophets. When the time was fulfilled You sent Your son into the world that He might renew Your image. He became man by the Holy Spirit and the Virgin Mary. He accomplished all things for the salvation of the human race"* (Anaphora of James, the Apostle).
 
-##A Life-Journey From Earth to Heaven
+## A Life-Journey From Earth to Heaven
 The world is improving with time and it moves from incompleteness to completeness. The interaction between God and humans in Christ is to prepare and teach them for their divine vocation- the kingdom.
 
 Jesus, in His birth, death and resurrection transforms, divinizes and completes humanity.
 
 *"You have united Your divinity with our humanity. You have joined Your Imortality with our mortality. You have taken what is ours and given us what is Yours for our life and salvation"* (Maronite Liturgy).
 
-##A Maronite Approach to Scripture
+## A Maronite Approach to Scripture
 The Maronite liturgical texts paraphrase and explain the scriptures through the scriptures. The Old Testament is read and interpreted in light of the New Testament. Old Testament images offer types (patterns) of the promised Messiah such as:
 
 *Adam and New Adam
@@ -74,7 +74,7 @@ The Maronite liturgical texts paraphrase and explain the scriptures through the 
 
 Ephrem taught: *"When you look, the symbol of Christ is present. Where you read, you find His types"*
 
-##A Monastic Spirit
+## A Monastic Spirit
 The monastic spirit of the Maronite Church opens the door to a life of simplicity a vision of hope and an attitude of readiness. The human vocation is to become like God, but sin interrupts this call. Conversion and purification invite a person to renewal, new life and intimacy with God. Thus, human beings become what God intends for them-Children and heirs of the kingdom.
 
 For a Maronite Christian the spiritual journey to the kingdom is described in terms of Birth from three wombs which the Holy Spirit energizes with Life.
@@ -85,7 +85,7 @@ For a Maronite Christian the spiritual journey to the kingdom is described in te
 
 **Death:** life's passage through tomb
 
-##The Maronite Liturgy
+## The Maronite Liturgy
 [The Maronite Liturgy](liturgy.md) is called Service of the Holy Mysteries and derives from the Syriac "ministering at the altar". Liturgy, Qourbono and other words are used.
 
 The entire liturgy (prayers, gestures, music, art, and architecture) reflects from beginning to end, glory to God for His loving mercy and the call of the worshipper to forgiveness and rebirth.
