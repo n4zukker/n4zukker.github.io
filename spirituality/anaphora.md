@@ -169,4 +169,5 @@ The Divine Liturgy of the Syriac Churches includes a final prayer where the cele
 In this prayer the altar is personified and the priest offers a gesture of peace. He expresses the desire to return in peace, which is the hope of all of humanity as it struggles in this unstable world. Realizing his sinfulness, the priest hopes that the Divine Gift that he has offered would obtain his own forgiveness and prepare him for the judgement that all humans must undergo. Again, the priest expresses his anxiety about the uncertainty of the present age and asks Christ, whom the altar symbolizes, to guard him. Since the Church herself is sailing on stormy seas, he asks Christ to protect her as she fulfills her mission to be the "way of salvation" and the "light of the world."
 
 *reprinted with permission*
+
 [The Liturgy – Part One](liturgy.md) • **The Anaphora – Part Two**
