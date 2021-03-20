@@ -42,11 +42,19 @@
 * [Enthronement Homily](Bishop_Mansour_Ordination_Homily)
 * The Election of Maronite Patriarch Behara Rai, [A Personal Reflection](A Personal Reflection_Patriarch Rai)
 * [Address to Youth and the Young Adults](address to youth)
+* [Got Anger](Got_anger)?
+* [Is the Catholic Church too strict?](Is the Catholic Church too strict)
+
+### Pro-Life / Pro-Family
 * Artificial Conception
   * [Part One](Artificial Contraception, Part 1)
   * [Part Two](Artificial Contraception, Part II)
+* [Divorce and Remarriage](divorce and remarriage)
+* [Loneliness](Loneliness) (March 2007)
 
 ### Priesthood
 * [A Theology of the Body](A Theology of the Body)
 * [Main Address at Priests' Retreat 2009](Main Address at Priest Retreat 2009)
+* [Homily for Priests' Retreat 2009](Homily for Priests Retreat 2009)
+* [Homily for 25th Anniversary of Priesthood](Homily for 25 anniversary of priesthood)
 
