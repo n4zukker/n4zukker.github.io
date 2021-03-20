@@ -1,6 +1,8 @@
 <h1>
 Bishop of the Eparchy of Saint Maron of Brooklyn<br/>
-As of Today, I Entrust Myself to You. “With You I Am Christian, For You I Am a Bishop.” Today I Am Yours.<br/>
+As of Today, I Entrust Myself to You.<br/>
+“With You I Am Christian, For You I Am a Bishop.”<br/>
+Today I Am Yours.<br/>
 Bishop Gregory Mansour Homily At Enthronement
 </h1>
 
