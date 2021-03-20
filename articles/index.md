@@ -37,6 +37,9 @@
 ## By His Beatitude Patriarch Nasrallah Peter Cardinal Sfeir
 * [Brief Reflection on Mary](Brief Reflection in Honor of Our Lady), St Maron Church, Philadelphia, Penn
 
+## By Archbishop Francis M. Zayek
+* [Mary Our Mother](Mary Our Mother)
+
 ## Various Articles By Bishop Gregory J. Mansour
 
 * [Enthronement Homily](Bishop_Mansour_Ordination_Homily)
@@ -44,6 +47,10 @@
 * [Address to Youth and the Young Adults](address to youth)
 * [Got Anger](Got_anger)?
 * [Is the Catholic Church too strict?](Is the Catholic Church too strict)
+* [Mary and listening to God](Mary and listening to God)
+* [Mary Our Mother](Mary Our Mother)
+* [Reflection on "Enemies"](Reflection on Enemies)
+* [A Reflection](Reflection_death_of_PopeJPII) On the Death of His Holiness Pope John Paul II
 
 ### Pro-Life / Pro-Family
 * Artificial Conception
@@ -57,4 +64,6 @@
 * [Main Address at Priests' Retreat 2009](Main Address at Priest Retreat 2009)
 * [Homily for Priests' Retreat 2009](Homily for Priests Retreat 2009)
 * [Homily for 25th Anniversary of Priesthood](Homily for 25 anniversary of priesthood)
+* [My experience of priestly celibacy in the USA](My experience of priestly celibacy in the USA)
+* [Reflections of a grateful priest](Reflections of a grateful priest)
 
