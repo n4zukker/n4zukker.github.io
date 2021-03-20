@@ -1,0 +1,66 @@
+<h1>
+Aspects of Maronite History<br/>
+By Chorbishop Seely Beggiani
+</h1>
+
+# Part Four
+
+### The Rule of the Mamlouks
+
+The year 1291 marked the definitive loss of the last remnants of crusader rule in the Middle East. From that time the region was under the domination of the Mamlouk until the Ottoman conquest in 1516. Fearing a new invasion from the west, the Mamlouk rulers were suspicious of any relations of the indigenous Christians with foreign countries. Any attempt at ties with the West were considered unpardonabletreason, a plot against the security of the state.
+
+The Maronites, grouped in Northern Lebanon, organized themselves under the direction of their Patriarch and clergy. They divided themselves into many districts headed by chiefs taken from within the nation and called mouqaddimin. This organization gave them a certain autonomy. The mouqaddimin were responsible to the Mamlouk governor of Tripoli and administered the temporal affairs of the community. They were generally ordained subdeacons so that they would have a right of precedence over the laity in the Church. By the fourteenth century the Maronites in Lebanon had grown in numbers and occupied a considerable number of towns and villages.
+
+### The Franciscans in Lebanon
+
+After a lapse of several decades, the popes of the fifteenth century took a renewed interest in the East, and especially in reuniting those who had separated from Rome. Missionaries from various religious orders were sent to the Middle East. The Franciscans especially became active in Lebanon at this time.
+
+In response to an invitation from Pope Eugene IV to attend the Council of Ferrar-Florence, Patriarch John al-Jajji commissioned the Superior of the Franciscans in Beyrouth to represent the Maronite Church and to assure the Holy Father that the Maronite Patriarch accepted in advance all the decisions of the Council.
+
+Suspicious and angered by the developing ties between the Maronite Patriarch and the West, the governor of Tripoli sent soldiers to destroy the monastery of Maiphouq in 1439. As a result, Patriarch John al-Jajji moved his residence to the monastery of Qannoubin in the "holy valley" [wadi qadisha] in 1440. At this residence, dedicated to Our Lady, the Patriarchs were to remain for the next three centuries, living an austere and simple existence.
+
+In 1444 the Holy See created an Apostolic Commissioner for the Maronites, Druze and Melkites. The most active among the missionaries in Lebanon was the Franciscan friar Gryphon who had studied Arabic and Syriac in Jerusalem and who chose to live and work among the Maronites. He constantly traveled through the mountain villages from 1455 to 1469 building new churches there. He enjoyed the complete confidence of Patriarch Peter al-Hadathi who encouraged him to preach in all the Maronite parishes and monasteries.
+
+On the other hand, Friar Gryphon also sought to Latinize some Maronite liturgical practices, but this was met with resistance from the Maronite clergy. However, on a mission to Rome, Friar Gryphon wrote a letter to the Maronites affirming their faith and their perpetual union with the Holy See. He also noted that the Maronites frequented the churches of the Franks, celebrating at their altars with the same articles and making the sign of the cross the way the Franks did
+
+The Maronite areas enjoyed some tranquility in the second half of the fifteenth century. Christians gathered together in large numbers. The village of Hadsheet alone had twenty priests. In the churches of Besharri, there were as many altars as days in the year. Over one hundred monasteries were scattered over the mountain. Peace, although relative, led to prosperity. As a consequence there was a development of intellectual and spiritual life. Schools multiplied and churches were augmented. The historian Patriarch Stephen Doueihi claims that at that period there were 110 Maronite manuscript copyists.
+
+### Persecutions
+
+The peace that Maronites enjoyed during this period was relative and intermittent. The mouqaddimin were not always able to protect their compatriots from the tyrannical measures that were decreed. In a report sent from Qannoubin to the Holy Father in 1475 by the Papal legate, Brother Alexander of Arioste states: "In the midst of this nation [Maronite] live the Saracens . . . Their tyranny knows no rest; also, in parts of Lebanon, there is only desolation, provoking tears. Under the pretext of raising a certain tribute that they call gelia, they [the agents of the authority] despoil the poor mountain people of all that they have; afterwards, they beat them with rods, inflicting all sorts of torments to extort from them what they do not have. Against these vexations, there is only one recourse possible, apostasy. Many might have fallen if it had not been for the charity of their pious Patriarch [Peter ibn Hassan] who came to their aid. Dismayed at the peril to the souls of his sheep, he gave over all the revenues of his churches to satisfy the greed of the tyrants. The door of the patriarchal monastery was walled up; sometimes he was obliged to hide in caves hollowed out of the earth.
+
+Oftentimes it was the patriarchs who were the focus of persecution. Patriarch David of Hadsheet was put to death by Sultan Qalaoun in 1282, and Patriarch Gabriel of Hajoula was burned at the stake near Tripoli in 1367. In a letter to Pope Leo X of March 8, 1514, Patriarch Simon declares: "We pray to God that during your days, we are liberated from the jurisdiction of the infidels who devour us, crush us and inflict on us taxes, very heavy tributes, affronts, persecutions and blows."
+
+### Gabriel Ibn al-Qilai'i
+
+The figure who dominates Maronite History of the fifteenth century is that of Gabriel ibn al-Qilai'i. He was born in 1450 in the village of Lehfed in the province of Jebail. During his mission to Lebanon, Friar Gryphon chose him along with two other Maronites to enter the Order of St. Francis. After their religious profession at Jerusalem, all three went to Venice and Rome to complete their studies. Returning to Lebanon, Brother Gabriel instructed the people in the faith and wrote against the Jacobite or Monophysite heretics [those who say there is only one nature in Christ]. He excelled in the composition of zajaliat [a type of popular poem]. He composed and translated into Arabic many works of theology, history and canon law. In 1507 he was consecrated Bishop of Nicosia for the Maronites of Cyprus and remained in his See until his death in 1516.
+
+Bishop al-Qilai'i defended vigorously the perpetual faith of the Maronites against accusations he found in his reading of Latin sources. He exercised a profound influence on the life of the Maronite Church, but also furthered the Latinization of Maronite litugry and discipline.
+
+### The Rule of the Ottomans
+
+In 1516, the Ottomans, under the leadership of Selim I conquered Syria and Lebanon. The region was divided into three pashaliks: Damascus, Aleppo and Tripoli. The pasha of Tripoli had the responsibility to watch over the seacoast, the region of the Nosairis (Alawits), Lebanon and the grand coastal route leading to theinterior. In 1660, a new pashalik of Sidon was created to watch over the South of Mount Lebanon.
+
+The historian, Bishop Pierre Dib observes that the history of Syria and Lebanon during this period can be summarized in this way: "administrative anarchy, a series of intrigues and quarrels among the pashas, indigenous dynasties, a chain of extortions, vexations and killings".
+
+The Ottomans did not have the force to remove small local dynasties maintained by individual emirs. Rather, they considered them as vassals and expected them to pay taxes or miri, to furnish a military contingent, and not to encroach on territories directly exploited by agents of the Sultan. Under these conditions, the sultan permitted them to ransom their own subjects, to fight among themselves, to perpetuate a state of anarchy which would make the subjection of the region easier.
+
+At this time the Maronites, massed in the northern part of Lebanon, belonged politically to the rule of Tripoli. However, they continued to be governed directly by their mouqaddamin. The role of the mouqaddamin consisted principally in raising the tax. They were subcollectors under the Moslem collector appointed by the sultan. About 1655 the government of a significant Maronite district, that of Besharri, was conferred on the Metouali or Shiite family of Hamada, which resulted in a number of Maronites fleeing to the south of Nahr Ibrahim and to the villages of the coast. The first Hamada governors were just and good administrators, but their successors adopted an entirely opposites direction, and imposed much oppression. Many Maronites were forced to emigrate and a majority of them took refuge in the district of Kesrawan.
+
+### The Pontifical Mission of 1578
+
+In the 15th and 16th centuries contacts between the Holy See and the Maronite patriarchs continued. Missionaries and papal legates continued to be sent to Lebanon. Often, they brought with them gifts of Roman altar vestments and furnishings. In the pontifical letters that were sent one can determine time and again the particular importance that the Popes attached to the adoption of certain rites and usages of the Latin Church, especially in the administration of the sacraments. And so the way was prepared for a systematic Latinizaton that would be accomplished inthe succeeding centuries.
+
+In 1578 Papal legates John Baptist Eliano, S.J. and Thomas Raggio, S.J. were sent to the Maronites. They brought with them a Papal Bull addressed to the Maronite Patriarch. After acknowledging the faith of the Maronites, Pope Gregory XIII requests that the Maronites should follow the Roman tradition in not adding references to Christ in the Trisagion, in having only Bishops administer the sacrament of Confirmation, and in not giving the Eucharist to children under the age of reason. The Holy Father closes by saying that he is going to send Arabic translations of the decrees and canons of the Council of Trent, and a catechism for use of pastors. We might note that the changes advocated by the Holy Father were of longstanding liturgical practice in the Maronite tradition.
+
+After meeting with the Maronite Patriarch, the Papal legates sought to examine the liturgical, canonical and theological books used by the Maronites. Father Eliano proceeded to censor and burn the books he considered contained errors. He has been accused by the Maronites of destroying many precious manuscripts important for the history of the nation. In fact, Patriarch Stephen Douaihi, noting that Arabic words often have many meanings difficult to understand, claims that Eliano was not a scholar in Arabic. Douaihi further observes that Eliano did not distinguish books accepted by the Maronites as contrasted to those of the Roman rite. On the other hand, Eliano's behavior is defended by the Jesuit scholar, Louis Cheiko.
+
+Father Eliano had thought of building a seminary in Tripoli, but decided against it because of the persecutions and difficulties the Maronites suffered there. He decided that Rome was the only place. He asked that six students be sent to study in Rome, but only two were sent, Gabriel Adniti from Mount Lebanon, and Gaspar of Cyprus.
+
+On his return to Rome, Father Eliano reported on the condition of the Maronites, praising their tradition and obedience to the Holy See and their joyful acceptance of the faith. Eliano told the Holy Father that, because some heretics were intermingled among the Maronites, some errors had infiltrated among them from foreign books and therefore the Maronites were employing improper customs. The Holy Father was happy with the report and thanked God for keeping the faith among a faraway people who knew neither the language nore the customs of Rome.
+
+It would seem that Eliano reported on other Maronite practices that he considered objectionable and that should be surrendered. He stated that Maronites use both leavened and unleavened bread and add salt, that the deacons receive the Eucharist under both species, that the celebrant gives Communion to people from his own host, that there are no statues in their churches, and that they do not kneel in their churches. (We note that these are traditional practices among the Eastern churches.)
+
+The Maronite position regarding the first visit of Papal legates Eliano and Raggio can be summarized best by citing the letter written by Patriarch Michael Ruzzi to Cardinal Caraffa, the Cardinal-Protector of the Maronites, dated August 25, 1678: "Since, my brother, there may be someone who will write to you that there are some words found in our books opposed to the holy Church, we accept only what the holy Church accepts, and whatever errors are found in some copies would have crept in and been inserted in them from the books of nations which are near us and from a long time ago. My brother, remove all suspicion concerning our rectitude; we were founded from antiquity in the faith of the Holy Apostolic Roman Church which we have always embraced; and we do not speak to you merely with our lips, but with our lips and hearts, may God be our witness."
+
+*reprinted with permission*
