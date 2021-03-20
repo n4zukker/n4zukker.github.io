@@ -53,7 +53,7 @@ by the prophets You guided us;<br/>
 and, at last, You sent Your only Son, our Lord and God Jesus Christ, into the world<br/>
 that He might renew Your image in us.<br/>
 He came down from Heaven, and, taking flesh from the Holy Spirit and the Ever-Virgin Mary, Mother of God, He dwelt among us and accomplished everything for the salvation of our race.
-<blockquote>
+</blockquote>
 
 You will note that this prayer refers to "the Law" and the "Prophets" which connote the whole of the Old Testament. Reflecting our tradition, the prayer describes the work of salvation as the renewal of God's image in us. In other words, we were created in the image of God. Sin did not bring about a loss of that image, but rather its being tainted and distorted. God, therefore, would not abandon His image, but rather comes to restore it to its original beauty.
 
