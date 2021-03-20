@@ -24,11 +24,13 @@ As we have already noted, we imagine that our earthly Liturgy mirrors the Divine
 
 The Prayer of Praise and Thanksgiving in the various anaphoras usually addresses God the Father as Creator and His work of creation. It goes on to describe how creation is responding in praise. Perhaps the most beautiful description of this symphony of cosmic worship is found in the Anaphora of Saint James which declares:
 
-. . . The heights of Heaven and all its powers exalt You:
-the sun, the moon and the whole choir of stars;
-the earth, the seas and all that is in them;
-the Heavenly Jerusalem, the Church of the firstborn, those whose names are written in Heaven;
+<blockquote>
+. . . The heights of Heaven and all its powers exalt You:<br/>
+the sun, the moon and the whole choir of stars;<br/>
+the earth, the seas and all that is in them;<br/>
+the Heavenly Jerusalem, the Church of the firstborn, those whose names are written in Heaven;<br/>
 the angels, archangels, dominions and thrones. . . .
+</blockquote>
 
 ### "Holy, Holy, Holy"
 
