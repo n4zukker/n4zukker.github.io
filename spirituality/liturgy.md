@@ -68,7 +68,7 @@ During the praying of the Hoosoyo, incense is burned. The celebrant or deacon in
 
 The congregation responds to the Hoosoyo by chanting a hymn or psalm (Qolo) appropriate to the theme of the feast being celebrated. The celebrant then summarizes the Hoosoyo by chanting a concluding prayer of incense (Etro).
 
-### Service of the Word
+## Service of the Word
 ### The Thrice Holy Hymn (Trisagion)
 
 With the congregation purified and in a prayerful state, it is time to welcome the coming of the Word of God. The ancient hymn which praises God as strong and immortal is chanted three times. While other traditions have referred this hymn to the Trinity, the Maronite tradition here again affirms all attributes of God to the Word made flesh in Christ. In its origin this hymn celebrated the procession of the Scriptures in preparation of their being read to the congregation. The prayer that follows the Trisagion petitions God to sanctify and purify the minds and hearts that are about to hear the reading of the Holy Scriptures.
@@ -85,8 +85,7 @@ The faithful conclude the service of the Word offering praise and thanksgiving t
 
 In ancient times, it was at this point that those who were not ready to celebrate the Service of the Eucharist left the place of worship. These included catechumens and public sinners who had not yet received forgiveness. This practice reminds us of the level of worthiness we should strive for in seeking to participate in the Eucharistic celebration.
 
-### The Pre-Anaphora
-
+## The Pre-Anaphora
 ### The Creed
 
 Before beginning the Eucharistic prayer, the assembled community makes a profession of faith. Faith is made up of many elements. At its most fundamental level, faith is a personal encounter with God and our definitive response of mind and heart to God in love. It creates a personal relationship between the believer and God. In faith we choose to view God, the world and ourselves through the eyes of Christ. We choose to make His will, His priorities, and His values our values. In order to come to an understanding of our commitment of faith, to define who we are as a community, and to articulate our faith to ourselves and others, it becomes necessary to express our inner faith externally in a series of beliefs and doctrines.
@@ -131,6 +130,6 @@ The third prayer is referred to as the prayer of the veil and may point to a tim
 
 Another interpretation of the prayer of the veil sees it referring to the removal of the chalice veil which had been carried in procession over the gifts as a protection for them.
 
-reprinted with permission
+*reprinted with permission*
 
-The Liturgy – Part One • [The Anaphora – Part Two](anaphora.md)
+**The Liturgy – Part One** • [The Anaphora – Part Two](anaphora.md)
