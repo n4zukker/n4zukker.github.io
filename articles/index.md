@@ -66,4 +66,5 @@
 * [Homily for 25th Anniversary of Priesthood](Homily for 25 anniversary of priesthood)
 * [My experience of priestly celibacy in the USA](My experience of priestly celibacy in the USA)
 * [Reflections of a grateful priest](Reflections of a grateful priest)
+* [Spiritual Direction and the Diocesan Priest](Spiritual direction and diocesan priest)
 
