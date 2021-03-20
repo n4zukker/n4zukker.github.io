@@ -53,6 +53,9 @@
 * [Opening Remarks](Remarks by Bishop Mansour at Philadelphia Banquet) at a Banquet in Philadelphia, Penn. on May 18, 2008
 * [Spiritual Direction and the Christian](Spiritual direction and the Christian)
 * [Talk in Honor of Mgsr. Sadek](Talk in Honor of Msgr Sadek)
+* [The Born Again Experience](The born again experience)
+* [Pastoral Reflection on the Passing of Archbishop Zayek](Tribute to Archbishop Zayek)
+* [Tribute to Patriarch Sfeir](Tribute to Patriarch Sfeir), March 2011
 
 ### Pro-Life / Pro-Family
 * Artificial Conception
@@ -60,6 +63,9 @@
   * [Part Two](Artificial Contraception, Part II)
 * [Divorce and Remarriage](divorce and remarriage)
 * [Loneliness](Loneliness) (March 2007)
+* [The Evening Behavior of Christians](The Evening Behavior of Christians)
+* [The Behavior of Some Men](The Behavior of Men)
+* [Three Inconvenient Truths](Three Inconvenient truths)
 
 ### Priesthood
 * [A Theology of the Body](A Theology of the Body)
