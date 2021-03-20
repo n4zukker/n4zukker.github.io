@@ -56,6 +56,7 @@
 * [The Born Again Experience](The born again experience)
 * [Pastoral Reflection on the Passing of Archbishop Zayek](Tribute to Archbishop Zayek)
 * [Tribute to Patriarch Sfeir](Tribute to Patriarch Sfeir), March 2011
+* [What it means to be Maronite](What it means to be Maronite): Spiritual Roots
 
 ### Pro-Life / Pro-Family
 * Artificial Conception
@@ -75,4 +76,5 @@
 * [My experience of priestly celibacy in the USA](My experience of priestly celibacy in the USA)
 * [Reflections of a grateful priest](Reflections of a grateful priest)
 * [Spiritual Direction and the Diocesan Priest](Spiritual direction and diocesan priest)
+* [Women Priests?](Women Priests)
 
