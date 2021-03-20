@@ -48,9 +48,9 @@
 * [Got Anger](Got_anger)?
 * [Is the Catholic Church too strict?](Is the Catholic Church too strict)
 * [Mary and listening to God](Mary and listening to God)
-* [Mary Our Mother](Mary Our Mother)
 * [Reflection on "Enemies"](Reflection on Enemies)
 * [A Reflection](Reflection_death_of_PopeJPII) On the Death of His Holiness Pope John Paul II
+* [Opening Remarks](Remarks by Bishop Mansour at Philadelphia Banquet) at a Banquet in Philadelphia, Penn. on May 18, 2008
 
 ### Pro-Life / Pro-Family
 * Artificial Conception
@@ -61,7 +61,7 @@
 
 ### Priesthood
 * [A Theology of the Body](A Theology of the Body)
-* [Main Address at Priests' Retreat 2009](Main Address at Priest Retreat 2009)
+* [Main Address at Priests' Retreat 2009](Address for Priest Retreat 2009)
 * [Homily for Priests' Retreat 2009](Homily for Priests Retreat 2009)
 * [Homily for 25th Anniversary of Priesthood](Homily for 25 anniversary of priesthood)
 * [My experience of priestly celibacy in the USA](My experience of priestly celibacy in the USA)
