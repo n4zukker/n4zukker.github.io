@@ -1,5 +1,7 @@
-#QURBONO
-#The Book of Offering
+<h1>
+QURBONO<br />
+The Book of Offering
+</h1>
 
 ## GENERAL INTRODUCTION AND EXPLANATION
 
@@ -435,7 +437,7 @@ May the blessing of the Most Holy Trinity, Father, Son and Holy Spirit, the One 
 
 Bkerke
 on the feast of the Disciples of our Father Saint Maron, 31 July 1992
-+ Boutros Gemayel
+&#10013; Boutros Gemayel
 Archbishop of Cyprus for the Maronites
 Chairman, Patriarchal Commission on Liturgy
 
