@@ -34,3 +34,19 @@
   * The Maronites in the United States [Part One](marinusa)
   * The Maronites in the United States [Part Two](marinusa2)
 
+## By His Beatitude Patriarch Nasrallah Peter Cardinal Sfeir
+* [Brief Reflection on Mary](Brief Reflection in Honor of Our Lady), St Maron Church, Philadelphia, Penn
+
+## Various Articles By Bishop Gregory J. Mansour
+
+* [Enthronement Homily](Bishop_Mansour_Ordination_Homily)
+* The Election of Maronite Patriarch Behara Rai, [A Personal Reflection](A Personal Reflection_Patriarch Rai)
+* [Address to Youth and the Young Adults](address to youth)
+* Artificial Conception
+  * [Part One](Artificial Contraception, Part 1)
+  * [Part Two](Artificial Contraception, Part II)
+
+### Priesthood
+* [A Theology of the Body](A Theology of the Body)
+* [Main Address at Priests' Retreat 2009](Main Address at Priest Retreat 2009)
+
