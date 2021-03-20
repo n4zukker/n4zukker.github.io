@@ -42,16 +42,18 @@ It is our belief that God is deeply concerned and involved with human affairs. T
 
 The Anaphora of Saint James provides a moving narrative of salvation history:
 
-. . . You are our God and Father,
-. . . Compassionate to the suffering of Your creation.
-You formed us from the earth and conferred on us the joy of Paradise.
-When we transgressed Your command and sinned You neither neglected nor rejected us,
-but rather, like a merciful Father, You sought us .
-By the Law You called us back;
-by the prophets You guided us;
-and, at last, You sent Your only Son, our Lord and God Jesus Christ, into the world
-that He might renew Your image in us.
+<blockquote>
+. . . You are our God and Father,<br/>
+. . . Compassionate to the suffering of Your creation.<br/>
+You formed us from the earth and conferred on us the joy of Paradise.<br/>
+When we transgressed Your command and sinned You neither neglected nor rejected us,<br/>
+but rather, like a merciful Father, You sought us .<br/>
+By the Law You called us back;<br/>
+by the prophets You guided us;<br/>
+and, at last, You sent Your only Son, our Lord and God Jesus Christ, into the world<br/>
+that He might renew Your image in us.<br/>
 He came down from Heaven, and, taking flesh from the Holy Spirit and the Ever-Virgin Mary, Mother of God, He dwelt among us and accomplished everything for the salvation of our race.
+<blockquote>
 
 You will note that this prayer refers to "the Law" and the "Prophets" which connote the whole of the Old Testament. Reflecting our tradition, the prayer describes the work of salvation as the renewal of God's image in us. In other words, we were created in the image of God. Sin did not bring about a loss of that image, but rather its being tainted and distorted. God, therefore, would not abandon His image, but rather comes to restore it to its original beauty.
 
