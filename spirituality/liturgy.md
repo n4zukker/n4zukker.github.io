@@ -1,7 +1,10 @@
-### Liturgy
-The Liturgy – Part One • [The Anaphora – Part Two](anaphora.md)
+**The Liturgy – Part One** • [The Anaphora – Part Two](anaphora.md)
 
-# A Commentary on the Holy Mysteries, The Holy Mystery of Offering (Qorbono) *By Chorbishop Seely Beggiani*
+<h1>
+A Commentary on the Holy Mysteries<br/>
+The Holy Mystery of Offering (Qorbono)<br/>
+<it>By Chorbishop Seely Beggiani</it>
+</h1>
 
 The center and focus of all the Holy Mysteries is participation in the Eucharist. Baptism and Chrismation initiate us into the community of believers, but it is the Eucharist which is the source and cause of community. While Baptism "grafts" us as members into the Body of Christ, the Eucharist nourishes us with the Body of Christ. We have become adopted children of God the Father, and therefore brothers and sisters of Christ, it is the Eucharsit which enables us to grow in the likeness of Christ. Thus the Eucharist is the Holy Mystery which completes the process of Christian initiation.
 
