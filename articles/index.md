@@ -52,6 +52,7 @@
 * [A Reflection](Reflection_death_of_PopeJPII) On the Death of His Holiness Pope John Paul II
 * [Opening Remarks](Remarks by Bishop Mansour at Philadelphia Banquet) at a Banquet in Philadelphia, Penn. on May 18, 2008
 * [Spiritual Direction and the Christian](Spiritual direction and the Christian)
+* [Talk in Honor of Mgsr. Sadek](Talk in Honor of Msgr Sadek)
 
 ### Pro-Life / Pro-Family
 * Artificial Conception
